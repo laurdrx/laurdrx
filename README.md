@@ -3,7 +3,6 @@
 **laurdrx/laurdrx** ✨
 
 Meu nome é Laura e estou cursando inrformática para internet  no CTISM.
-
 Sou gaúcha e de Santa Maria.
 
 ##Hobbies

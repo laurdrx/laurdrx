@@ -10,7 +10,7 @@ Sou gaúcha e de Santa Maria.
 * Gosto de ler livros (pricipalmente com protagonistas pretos);
 * Gosto de escrever poesias;
 * Gosto  criar tags de pixo;
-* Gosto de dançat Jazz;
+* Gosto de dançar Jazz;
 
 ##Meus pronomes:
 * ela/dela

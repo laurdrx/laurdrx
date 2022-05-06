@@ -4,6 +4,7 @@
  
 
 Meu nome é Laura e estou cursando inrformática para internet  no CTISM.
+
 Descobri que estudar no CTISM não é só comer no RU :(
 
 ## Hobbies

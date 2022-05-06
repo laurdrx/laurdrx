@@ -1,9 +1,10 @@
 ### Salve! 👋
 
 **laurdrx/laurdrx** ✨
+ 
 
 Meu nome é Laura e estou cursando inrformática para internet  no CTISM.
-Sou gaúcha e de Santa Maria.
+Descobri que estudar no CTISM não é só comer no RU :(
 
 ## Hobbies
 * Gosto de desenhar personagens femininos;

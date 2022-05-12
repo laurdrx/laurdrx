@@ -2,11 +2,12 @@
 
  
  
-Meu nome é Laura, tenho 15 anos e estou cursando inrformática para internet no CTISM.🤝🏿 Santa Maria,RS.
+Meu nome é Laura, tenho 15 anos e estou cursando inrformática para internet no CTISM.🤝🏿 
+Santa Maria,RS.
 Descobri que estudar no CTISM não é só comer no RU :(
 
 
-## Hobbies.
+## Hobbies:
 * desenhar personagens femininos👯‍♀️;
 * ler livros (pricipalmente com protagonistas pretos)📚;
 * escrever poesias📓;
@@ -16,8 +17,11 @@ Descobri que estudar no CTISM não é só comer no RU :(
 ## Meus pronomes:
 * ela/dela💫
 
+## Meus livros favoritos:📚
+* On the come up.
+* The hate u give.
 
-![](https://i.gifer.com/3Hw.gif)
+![gif do Will Smit](https://i.gifer.com/3Hw.gif)
 
 ## "Deixe seu sorriso mudar o mundo mas não nunca deixe o mundo mudar o seu sorriso".
-                                                                   * Tupac Shakur *
+                                                                    Tupac Shakur 

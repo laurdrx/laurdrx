@@ -21,9 +21,8 @@ Descobri que estudar no CTISM não é só comer no RU :(
 * On the come up.
 * The hate u give.
 
-![gif will] <https://i.gifer.com/3Hw.gif`>
+![gif will] (https://i.gifer.com/3Hw.gif)
 
 
 "Deixe seu sorriso mudar o mundo mas não nunca deixe o mundo mudar o seu sorriso".
-                                                
-                                                Tupac Shakur  
+                                                           Tupac Shakur  

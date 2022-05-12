@@ -1,20 +1,23 @@
-### Salve! 👋
+### Salve! 👋🏿
 
-**laurdrx/laurdrx** ✨
  
-
-Meu nome é Laura e estou cursando inrformática para internet  no CTISM.
-
+ 
+Meu nome é Laura, tenho 15 anos e estou cursando inrformática para internet no CTISM.🤝🏿 Santa Maria,RS.
 Descobri que estudar no CTISM não é só comer no RU :(
 
-## Hobbies
-* Gosto de desenhar personagens femininos;
-* Gosto de ler livros (pricipalmente com protagonistas pretos);
-* Gosto de escrever poesias;
-* Gosto  criar tags de pixo;
-* Gosto de dançar Jazz;
+
+## Hobbies.
+* desenhar personagens femininos👯‍♀️;
+* ler livros (pricipalmente com protagonistas pretos)📚;
+* escrever poesias📓;
+* criar tags de grafite✏;
+* dançar Jazz💃🏿;
 
 ## Meus pronomes:
-* ela/dela
+* ela/dela💫
 
 
+![](https://i.gifer.com/3Hw.gif)
+
+#"Deixe seu sorriso mudar o mundo mas não nunca deixe o mundo mudar o seu sorriso".
+                                                                     Tupac Shakur

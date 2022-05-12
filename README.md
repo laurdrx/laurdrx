@@ -3,7 +3,9 @@
  
  
 Meu nome é Laura, tenho 15 anos e estou cursando inrformática para internet no CTISM.🤝🏿 
+
 Santa Maria,RS.
+
 Descobri que estudar no CTISM não é só comer no RU :(
 
 

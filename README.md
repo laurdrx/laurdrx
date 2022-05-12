@@ -2,7 +2,7 @@
 
  
  
-Meu nome é Laura, tenho 15 anos e estou cursando inrformática para internet no CTISM.🤝🏿 
+Meu nome é Laura, tenho 15 anos e estou cursando informática para internet no CTISM.🤝🏿 
 
 Santa Maria,RS.
 

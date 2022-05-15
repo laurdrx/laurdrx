@@ -23,7 +23,8 @@ Descobri que estudar no CTISM não é só comer no RU :(
 * On the come up.
 * The hate u give.
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fmariflo122%2Fwill-smith-meme%2F&psig=AOvVaw2tzy5nrlo7yEza9IIiW9X9&ust=1652723791357000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCLCC1ZCK4vcCFQAAAAAdAAAAABAD
+!(https://i.gifer.com/21X8.gif)
+
 
 "Deixe seu sorriso mudar o mundo mas não nunca deixe o mundo mudar o seu sorriso".
                                                            Tupac Shakur 

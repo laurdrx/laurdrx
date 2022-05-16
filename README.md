@@ -20,7 +20,7 @@ Descobri que estudar no CTISM não é só comer no RU :(
 ## Meus livros favoritos:📚
 * On the come up.
 * The hate u give.
-![ ](https://images.app.goo.gl/JuPTcVjeibWWwPYX6)
+
 
 
 "Deixe seu sorriso mudar o mundo mas não nunca deixe o mundo mudar o seu sorriso".

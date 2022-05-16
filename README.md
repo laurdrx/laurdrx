@@ -21,7 +21,7 @@ Descobri que estudar no CTISM não é só comer no RU :(
 * On the come up.
 * The hate u give.
 
-![https://i.gifer.com/21X8.gif] 
+!(https://i.gifer.com/21X8.gif)
 
 
 "Deixe seu sorriso mudar o mundo mas não nunca deixe o mundo mudar o seu sorriso".

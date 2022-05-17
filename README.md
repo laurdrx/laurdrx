@@ -21,4 +21,5 @@ Descobri que estudar no CTISM não é só comer no RU :(
 * On the come up.
 * The hate u give.
   
-### _"Não estou dizendo que vou mudar o mundo, mas garanto que vou ser a faísca no cérebro de quem mudará o mundo."_ ###  _Tupac Shakur_
+### _"Não estou dizendo que vou mudar o mundo, mas garanto que vou ser a faísca no cérebro de quem mudará o mundo."_ ### 
+                                        _Tupac Shakur_

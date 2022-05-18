@@ -25,4 +25,4 @@ Descobri que estudar no CTISM não é só comer no RU :(
 
  Tupac Shakur          
 
-  ! [] (https://tenor.com/vVno.gif| 200x50)
+   ! [] img src="https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif" width="40" height="40" />

@@ -21,8 +21,9 @@ Descobri que estudar no CTISM não é só comer no RU :(
 * On the come up.
 * The hate u give.
   
-### _"Viva a rosa que cresceu a partir do concreto, quando ninguém se importava mesmo !"_ ###              
+### _"Viva a rosa que cresceu a partir do concreto, quando ninguém se importava mesmo !"_              
 
  Tupac Shakur          
 
-   <body background="(https://tenor.com/vVno.gif) >
+   
+![](https://c.tenor.com/qcYlFf9IyQ8AAAAC/dap-handshake.gif)

@@ -2,7 +2,7 @@
 
  
  
-Meu nome é Laura, tenho 16 anos e estou cursando informática para internet no CTISM.🤝🏿 
+Meu nome é Laura, tenho 17 anos e estou cursando informática para internet no CTISM.🤝🏿 
 
 Descobri que estudar no CTISM não é só comer no RU :(
 
